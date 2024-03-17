@@ -1,4 +1,4 @@
-### 👋 Olá, me chamo @Gabriel-Marinho-Godinho
+### 👋 Olá, me chamo Gabriel Marinho Godinho
 ##
 Seja bem-vindo ao meu perfil! Aqui, compartilho minhas experiências e projetos realizados. Venha conhecê-los!
 
